@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @blackdenev
-- 👀 I’m interested in the 地球科学と歴史です。
+- 👀 I’m interested in the Earth siense & Histry.
 - 🌱 I’m currently learning ↑ by myself
 - 💞️ 私は、人間関係が苦手です。
 - 📫 How to reach me ...　I sink mistake ,I stay this point. 
